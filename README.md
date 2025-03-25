@@ -1,0 +1,1 @@
+# ar-plush-bear-model
